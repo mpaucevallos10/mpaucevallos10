@@ -1,7 +1,7 @@
 ## 🌸✨ About Me ✨🌸
 
 Hi! I’m Paula — a high school student who dreams of becoming a future creator in the world of technology.
-I was born in Quinindé, Ecuador 🇪🇨, and now I live in Manta 🌊, where I spend my days studying, drawing, and learning new skills.
+I was born in Jama, Ecuador 🇪🇨, and now I live in Manta 🌊, where I spend my days studying, drawing, and learning new skills.
 
 ## 🎀💗 What I Love
 
